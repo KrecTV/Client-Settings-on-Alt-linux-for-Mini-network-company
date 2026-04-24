@@ -1,0 +1,1 @@
+# Client-Settings-on-Alt-linux-for-Mini-network-company
